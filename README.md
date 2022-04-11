@@ -1,5 +1,6 @@
-![SuprSelf](thumbnail.png)
-
+SuprSelf
+<br>
+</br>
 ---
 
 ### The Suprself app will be available for download soon! 🥳 🚀
