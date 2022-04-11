@@ -2,7 +2,7 @@
 
 ---
 
-### The Superself app will be available for download soon! 🥳 🚀
+### The Suprself app will be available for download soon! 🥳 🚀
 - Android: coming soon 👀
 
 ---
